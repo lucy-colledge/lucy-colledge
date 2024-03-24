@@ -1,3 +1,4 @@
 # Lucy Colledge
-**(she/her)**
+_(she/her)_
+
 [LinkedIn](www.linkedin.com/in/lucy-colledge)
